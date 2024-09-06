@@ -58,6 +58,3 @@ Never gonna tell a lie and hurt you
 ![image](https://github.com/user-attachments/assets/c161656e-d5ae-4725-ac67-59acf2e84dcf)
 
 
-#### D
-##### E
-###### F
